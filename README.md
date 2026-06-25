@@ -1,7 +1,6 @@
 # pochvjbknlllk.hvjv 
 b fghbjnkml
 hjvhhjvvhjvjh kbujn
-ubhvhbjnklkjhg
-kjgjhji8oinlj
+ubhvhbjnklkjhgjgjhji8oinlj
 fcyghuiotrsrdtyu
 kj
