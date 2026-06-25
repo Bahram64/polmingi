@@ -3,5 +3,5 @@ b fghbjnkml
 hjvhhjvvhjvjh kbujn
 ubhvhbjnklkjhgnm
 kjgjhji8oinljk
-fcyghuiotrsrdtyuio[
+fcyghuiotrsrdtyuio
 kjhrdtf
